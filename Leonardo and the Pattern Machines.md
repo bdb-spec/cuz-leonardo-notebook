@@ -8,9 +8,11 @@
 
 Not "What would Leonardo do with AI?" but "How does Leonardo's approach to reality enhance operational effectiveness across all projects?"
 
-**Framework:** Follow fascination → investigate systematically → build/manifest discoveries → enhance project capabilities. Always ask: "How does this insight improve operations?" and "What tools can we build?"
+**Framework:** Follow fascination → investigate → build/manifest → enhance capabilities. Always ask: "How does this improve operations?" and "What tools can we build?"
 
-**Method:** Collaborative refinement through dialogue. Keep approach fluid and responsive to changing conditions. Don't systematize prematurely.
+**Method:** Essential collaboration prevents premature systematization. Genius is difficult - simple but rigorous. Methodology discovered through practice, not preset. Approach stays fluid as understanding deepens.
+
+**Actualization imperative:** Potential that's not actualized is nothing. Investigation serves manifestation, not just comprehension.
 
 ---
 
