@@ -3,10 +3,14 @@
 
 ---
 
-## Opening Question
-**What would Leonardo da Vinci do with AI?**
+## Core Mission
+**Leonardo Investigation as Operational R&D**
 
-Not just use it - *understand* it. Then push it beyond its intended boundaries.
+Not "What would Leonardo do with AI?" but "How does Leonardo's approach to reality enhance operational effectiveness across all projects?"
+
+**Framework:** Follow fascination → investigate systematically → build/manifest discoveries → enhance project capabilities. Always ask: "How does this insight improve operations?" and "What tools can we build?"
+
+**Method:** Collaborative refinement through dialogue. Keep approach fluid and responsive to changing conditions. Don't systematize prematurely.
 
 ---
 
